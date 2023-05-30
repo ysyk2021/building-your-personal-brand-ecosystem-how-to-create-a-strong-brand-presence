@@ -8,4 +8,4 @@ This book aims to help you build your personal brand ecosystem by providing you 
 
 By the end of this book, you will have a comprehensive understanding of personal brand ecosystems and the tools and techniques required to build a strong brand presence. So let's get started and begin creating your personal brand ecosystem today!
 
-MingHai Zheng is a writer based in Wuhan, China, who focuses on writing articles about workplace and management topics. He has written hundreds of articles on these topics and is dedicated to sharing his insights and experiences with others who are interested in improving their careers and their businesses.
+MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
