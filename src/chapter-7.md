@@ -1,5 +1,3 @@
-Chapter 6: Creating Value for Your Audience
-===========================================
 
 Creating value for your audience is a critical component of personal branding. In this chapter, we will discuss the importance of creating value for your audience, techniques for creating value through content marketing and other methods, addressing common challenges in creating value, and building a loyal following of supporters.
 

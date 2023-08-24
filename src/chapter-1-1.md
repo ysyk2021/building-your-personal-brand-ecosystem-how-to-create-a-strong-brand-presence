@@ -1,5 +1,3 @@
-The Importance of Personal Branding in Modern Society
-===================================================================
 
 In today's hyper-connected world, personal branding has become increasingly important. With the rise of social media and digital marketing, it's easier than ever for individuals to create and promote their personal brands.
 

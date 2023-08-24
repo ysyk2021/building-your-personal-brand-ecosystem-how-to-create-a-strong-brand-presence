@@ -1,5 +1,3 @@
-Recognizing the Importance of Creating Value for Your Audience
-===========================================================================================================
 
 Creating value for one's audience is an essential component of personal branding. In this chapter, we will discuss the importance of creating value for your audience.
 

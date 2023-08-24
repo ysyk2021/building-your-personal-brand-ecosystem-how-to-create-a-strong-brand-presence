@@ -1,5 +1,3 @@
-Building a Loyal Following of Supporters
-=====================================================================================
 
 Building a loyal following of supporters is essential for establishing oneself as a thought leader and achieving professional success. In this chapter, we will discuss how to create value for your audience and build a strong community of supporters.
 

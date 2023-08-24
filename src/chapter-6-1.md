@@ -1,5 +1,3 @@
-The Importance of Developing Thought Leadership in Personal Branding
-==============================================================================================================
 
 Developing thought leadership is a critical component of personal branding. In this chapter, we will discuss the importance of developing thought leadership in personal branding.
 

@@ -1,5 +1,3 @@
-Techniques for Building and Nurturing Relationships
-=============================================================================================
 
 Building strong relationships is a critical component of personal branding. In this chapter, we will discuss techniques for building and nurturing relationships.
 

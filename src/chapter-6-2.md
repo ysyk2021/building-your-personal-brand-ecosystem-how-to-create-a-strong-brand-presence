@@ -1,5 +1,3 @@
-Techniques for Developing Thought Leadership
-======================================================================================
 
 Developing thought leadership is a key component of personal branding. In this chapter, we will discuss techniques for developing thought leadership.
 

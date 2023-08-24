@@ -1,5 +1,3 @@
-Identifying Different Components of Personal Branding
-==============================================================================================================
 
 In the previous section, we discussed the theory behind personal branding and its importance in today's competitive business landscape. In this section, we will identify the different components of personal branding.
 

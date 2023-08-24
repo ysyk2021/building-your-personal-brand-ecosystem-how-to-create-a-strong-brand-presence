@@ -1,5 +1,3 @@
-Developing Empathy and Compassion
-===========================================================================
 
 Developing empathy and compassion is a critical component of building strong relationships in personal branding. In this chapter, we will discuss why empathy and compassion are important in personal branding and provide techniques for developing these qualities.
 

@@ -1,5 +1,3 @@
-Developing Effective Communication Channels within the Online Ecosystem
-=========================================================================================================================
 
 Creating an effective online presence requires developing effective communication channels within the online ecosystem. In this chapter, we will discuss the importance of developing effective communication channels and strategies for doing so.
 

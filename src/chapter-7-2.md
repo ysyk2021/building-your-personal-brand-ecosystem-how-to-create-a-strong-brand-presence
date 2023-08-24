@@ -1,5 +1,3 @@
-Techniques for Creating Value through Content Marketing and Other Methods
-======================================================================================================================
 
 Creating value for one's audience is a critical component of personal branding. In this chapter, we will discuss techniques for creating value through content marketing and other methods.
 

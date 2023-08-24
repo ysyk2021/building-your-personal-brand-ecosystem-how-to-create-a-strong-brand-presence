@@ -1,5 +1,3 @@
-Building Credibility and Authority in the Industry
-============================================================================================
 
 Developing thought leadership is essential for building a strong personal brand presence. By establishing credibility and authority in the industry, individuals can differentiate themselves from their peers and position themselves as experts in their field. In this chapter, we will explore how to develop thought leadership and build credibility and authority in the industry.
 

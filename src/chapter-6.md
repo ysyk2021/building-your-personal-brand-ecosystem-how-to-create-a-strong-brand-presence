@@ -1,5 +1,3 @@
-Chapter 5: Developing Thought Leadership
-========================================
 
 Developing thought leadership is a critical component of personal branding. In this chapter, we will discuss the importance of developing thought leadership in personal branding, techniques for developing thought leadership, addressing common obstacles and challenges in developing thought leadership, and building credibility and authority in the industry.
 
