@@ -8,3 +8,7 @@ This book aims to help you build your personal brand ecosystem by providing you 
 By the end of this book, you will have a comprehensive understanding of personal brand ecosystems and the tools and techniques required to build a strong brand presence. So let's get started and begin creating your personal brand ecosystem today!
 
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
+
+Please Buy Me a Coffee to support us if you think this book is valuable to you. click this link:
+
+https://www.buymeacoffee.com/minghaizheng
