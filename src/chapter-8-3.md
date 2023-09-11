@@ -1,5 +1,4 @@
-Chapter 11: Making Adjustments to Improve Personal Branding Efforts
-===================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the pursuit of building a strong brand presence, adaptability and the willingness to make strategic adjustments are key. This chapter explores the importance of making informed adjustments to enhance your personal branding efforts.
 

@@ -1,5 +1,4 @@
-Chapter 7: Building Trust Through Effective Personal Branding
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Trust is the cornerstone of a strong personal brand ecosystem. In this chapter, we will explore the vital role trust plays in personal branding and how to cultivate it effectively.
 

@@ -1,5 +1,4 @@
-Chapter 9: Building Credibility and Authority in the Industry
-=============================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Credibility and authority are the cornerstones of a strong personal brand ecosystem. In this chapter, we will explore strategies and tactics to establish yourself as a trusted and influential figure within your industry.
 

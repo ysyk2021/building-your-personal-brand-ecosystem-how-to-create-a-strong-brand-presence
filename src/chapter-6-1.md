@@ -1,5 +1,4 @@
-Chapter 5: The Importance of Developing Thought Leadership in Personal Branding
-===============================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the journey to build a strong personal brand ecosystem, one of the most powerful tools at your disposal is the development of thought leadership. In this chapter, we will explore why thought leadership is crucial in personal branding and how it can elevate your presence and influence in your field.
 

@@ -1,5 +1,4 @@
-Chapter 2: Overview of Personal Branding Theory
-===============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to build a strong personal brand ecosystem, it's essential to understand the underlying theory and principles of personal branding. This chapter provides an overview of the key concepts and theories that form the foundation of effective personal branding.
 

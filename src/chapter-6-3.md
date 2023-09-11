@@ -1,5 +1,4 @@
-Chapter 8: Addressing Common Obstacles and Challenges in Developing Thought Leadership
-======================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Becoming a thought leader and building a strong personal brand presence are commendable goals, but they come with their fair share of obstacles and challenges. In this chapter, we will explore some of the common hurdles you may encounter on your journey to thought leadership and provide strategies for addressing them effectively.
 

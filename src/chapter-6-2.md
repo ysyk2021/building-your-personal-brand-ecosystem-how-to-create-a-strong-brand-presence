@@ -1,5 +1,4 @@
-Chapter 6: Techniques for Developing Thought Leadership
-=======================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Becoming a thought leader is a powerful way to enhance your personal brand and create a strong brand presence. In this chapter, we will explore various techniques and strategies for developing thought leadership in your field.
 

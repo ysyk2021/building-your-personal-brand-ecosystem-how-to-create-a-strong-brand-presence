@@ -1,5 +1,4 @@
-Chapter 8: Techniques for Designing and Implementing an Effective Online Presence
-=================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In the digital age, crafting a compelling online presence is a vital component of building a strong personal brand ecosystem. This chapter explores techniques to help you design and execute an impactful online presence.
 

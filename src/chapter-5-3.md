@@ -1,5 +1,4 @@
-Chapter 6: Developing Empathy and Compassion
-============================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 At the heart of every successful personal brand lies a genuine connection with the audience, and the most profound connections are fostered through empathy and compassion. This chapter will delve into the significance of these traits in personal branding and guide you on how to nurture them.
 

@@ -1,5 +1,4 @@
-Chapter 11: Building a Supportive Network
-=========================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a strong personal brand presence is not a solitary journey. It requires the support and collaboration of a diverse network of individuals. In this chapter, we will explore the importance of building a supportive network and strategies for doing so.
 

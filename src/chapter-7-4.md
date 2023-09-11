@@ -1,5 +1,4 @@
-Chapter 13: Building a Loyal Following of Supporters
-====================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 A crucial element in creating a strong brand presence is the cultivation of a loyal following of supporters. In this chapter, we will explore effective strategies for attracting and nurturing a dedicated community around your personal brand.
 

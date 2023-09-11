@@ -1,5 +1,4 @@
-Chapter 10: Addressing Common Challenges in Creating Value
-==========================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 While building a strong personal brand presence through value creation is essential, it comes with its fair share of challenges. In this chapter, we'll delve into some of the common obstacles you might encounter and strategies for overcoming them.
 

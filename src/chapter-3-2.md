@@ -1,5 +1,4 @@
-Chapter 12: Techniques for Developing a Clear Personal Brand Strategy
-=====================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Developing a well-defined personal brand strategy is the foundation of building a strong brand presence. In this chapter, we'll explore essential techniques for creating a clear and effective personal brand strategy.
 

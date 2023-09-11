@@ -1,5 +1,4 @@
-Chapter 4: Identifying Different Components of Personal Branding
-================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 In order to create a robust personal brand ecosystem, it's essential to break down personal branding into its core components. This chapter delves into the various elements that collectively form your personal brand.
 

@@ -1,5 +1,4 @@
-Chapter 9: Techniques for Evaluating the Effectiveness of Personal Branding Efforts
-===================================================================================
+**The current status of this chapter is draft. I will finish it later when I have time**
 
 Building a strong brand presence requires not only crafting a compelling personal brand but also continuously assessing the impact of your efforts. In this chapter, we will explore essential techniques for evaluating the effectiveness of your personal branding strategies.
 
